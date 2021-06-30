@@ -55,3 +55,12 @@ https://www.youtube.com/watch?v=Aw59--GDLN8
 
 ### Yeah Yeah Yeahs - Heads Will Roll
 https://www.youtube.com/watch?v=_X3C19nvaHY
+
+### Roadman Trump - Da Wall Go Skkkrrrrrrrraaa ###
+https://www.youtube.com/watch?v=pyucuehBsGA
+
+### Nig Wham - Last tingmas
+https://www.youtube.com/watch?v=l7-K5YpqZkI
+
+### Man's LITerally not hot REMIX
+https://www.youtube.com/watch?v=KKgLTB7cq7Q
